@@ -1,1 +1,1 @@
-# word-of-the-day
+Substancial - involving matters of major or practical importance to all concerned (Added by Rahul)
