@@ -1,1 +1,1 @@
-# word-of-the-day
+Contrarian - Who goes aganist with popular opinion (Addded by Hampesh)
